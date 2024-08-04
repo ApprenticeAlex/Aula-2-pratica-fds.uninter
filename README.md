@@ -1,0 +1,5 @@
+Para Dino use estes blocos:
+![image](https://github.com/user-attachments/assets/00558313-15fe-4ce3-b701-a83ce45630c0)
+
+PAra Unicornio use estes blocos:
+
